@@ -1,2 +1,1 @@
-mau uang 
-au sehat al afiat
+mau duit trs menerus tnpa berhnti
